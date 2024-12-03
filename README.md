@@ -1,2 +1,2 @@
 # ANTI-AIMBOT
-anti aimbot mad by yasser 
+anti aimbot made by yasser 
